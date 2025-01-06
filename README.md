@@ -1,7 +1,6 @@
 ## Hi there 👋
 
 - 🔭 I’m currently working on Bachelor's degree
-- 🌱 I’m currently learning macroeconimi
+- 🌱 I’m currently learning macroeconomy
 - 💬 Ask me about my sheer indefatigability
-- 📫 How to reach me: blejanalexandru on Discord
-- ⚡ Fun fact: I am poor
+- ⚡ Fun fact: I am poor, but with a winner mindset
